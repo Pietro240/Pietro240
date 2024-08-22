@@ -2,4 +2,5 @@
  Sou estudante do Colégio Visconde de Guarapuava >:D
 
  Gosto de Jogos e conversas
-! [gif] (https://tenor.com/pt-BR/view/coquette-hampter-gif-2392249125357161308)
+! [gif] (![image](https://github.com/user-attachments/assets/3bc36c93-7b2e-4dda-9d9a-009117782b46)
+
